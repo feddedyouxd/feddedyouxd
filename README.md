@@ -1,0 +1,3 @@
+- 👨🏽‍💻 lua, css, python
+- 🔗feds.lol/incapable
+- 👾 1073060735124516884
